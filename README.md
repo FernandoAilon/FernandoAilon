@@ -2,7 +2,7 @@
 - 👀 I’m interested in everything!
 - 🌱 I’m currently learning mobile dev, web dev, and linear algebra
 - 💞️ I’m looking to collaborate on projects!
-- 📫 How to reach me https://www.linkedin.com/in/fernando-ailon/
+- 📫 How to reach me fernandoailon26@yahoo.com
 - 😄 Pronouns: Him
 - ⚡ Fun fact: I won $200 in a Fortnite Tournament
 
